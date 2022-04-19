@@ -1,6 +1,6 @@
 ### Hi there 👋 im Mark
 
-im mma fighher 
+## Im MMA coach
 
 Here are some ideas to get you started:
 
