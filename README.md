@@ -1,6 +1,6 @@
 ### Hi there 👋 im Mark
 
-## Im MMA coach
+## I'm MMA coach
 
 
 - 😃 i like to write code 
